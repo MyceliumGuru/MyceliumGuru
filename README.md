@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me toddy1552@hotmail.co.uk
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I currently climb trees for a loving
+- ⚡ Fun fact: I currently climb trees for a living
 
 <!---
 MyceliumGuru/MyceliumGuru is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
